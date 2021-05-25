@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Reading :heart:
+2. Travel ✈️
+3. Food 🍰
+4. Tech 👩‍💻
